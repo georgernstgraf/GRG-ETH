@@ -20,4 +20,5 @@ Theorie, Widerlegung (Falsifikation u. unfalsifieable), Quellen und Fakten, ...
 ## Thesen Popper
 
 - Ziegler in der 3-er Auswahl <https://www.youtube.com/watch?v=-BlpZKVy7mQ>
-- crashcourse popper <https://youtu.be/-X8Xfl0JdTQ>
+- crashcourse philosophy: popper <https://youtu.be/-X8Xfl0JdTQ>
+- Gert Scobel: Wenn Wissenschaft wahr ist: <https://www.youtube.com/watch?v=x0-yRHJmOkM>
