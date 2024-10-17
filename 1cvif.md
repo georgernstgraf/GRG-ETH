@@ -4,13 +4,15 @@
 
 ## 2024-10-17
 
-Menschenrechte
-
-## 2024-10-10
+Harari mit dem Filmemacher, in einem Monat Kafka
 
 ## 2024-10-03
 
+nietzsche / ziegler
+
 ## 2024-09-19
+
+wahlkabine
 
 ## 2024-09-05
 
