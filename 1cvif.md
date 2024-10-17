@@ -2,6 +2,12 @@
 
 2-wöchig alternierend
 
+## 2024-10-17
+
+Menschenrechte
+
+## 2024-10-10
+
 ## 2024-10-03
 
 ## 2024-09-19

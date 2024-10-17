@@ -1,5 +1,13 @@
 # 3CAIF ETHIK WS 2425
 
+## 2024-10-17
+
+- [doku arte](https://youtu.be/hqkIJPS8jbI) (27min) Werden wir mehr Drogen nehmen?
+
+## 2024-10-10
+
+Matura Beobachtung
+
 ## 2024-10-03
 
 Muho und mostly true
