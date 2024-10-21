@@ -3,6 +3,16 @@
 ## offene Wünsche
 
 - KI (Maska)
+
+## 2024-10-21
+
+- was ist der Übermensch?
+- Gott als "story"
+- das "Kind"
+- Lenzer Heide Fragment: <http://www.nietzschesource.org/#eKGWB/NF-1886,5[71]>
+
+## 2024-10-14
+
 - Nietzsche!!
 
 ## 2024-10-07
