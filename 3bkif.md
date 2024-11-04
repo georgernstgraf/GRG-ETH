@@ -4,6 +4,10 @@
 
 - KI (Maska)
 
+## 2024-11-04
+
+Josha Bach KI
+
 ## 2024-10-21
 
 - was ist der Übermensch?
