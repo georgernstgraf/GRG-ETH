@@ -1,5 +1,12 @@
 # ETHiK 1CVIF WS 2425
 
+- daten
+- compliance
+- datenschutz
+- kulturelle unt. usa / asien /eur
+- arbeitseinstellung / moral
+
+
 2-wöchig alternierend
 
 ## 2024-10-17
